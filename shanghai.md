@@ -80,3 +80,60 @@
 - Khu 1933 Old Millfun (kiến trúc độc đáo)
 - Đường Đa Ôn Lộ 193 (Duolun Road – văn hóa cũ)
 - Khu Hồng Khẩu – Đường Bắc Tứ Xuyên (North Sichuan Road)
+
+# Shanghai (bổ sung)
+
+## A. Khu trung tâm & biểu tượng
+- North Bund Riverside
+- Waibaidu Bridge
+- Shanghai Postal Museum
+
+## B. Khu nhượng địa Pháp cũ
+- Anfu Road
+- Taikoo Hui
+- Starbucks Reserve Roastery
+- Jiashan Market
+
+## C. Khu Phú Đông (Pudong)
+- Taikoo Li Qiantan
+- China Art Museum (China Pavilion – Expo 2010)
+
+## D. Chùa chiền
+- Shanghai Confucian Temple (Văn Miếu Thượng Hải)
+
+## E. Bảo tàng & nghệ thuật
+- Long Museum West Bund
+- Yuz Museum
+- Shanghai Film Museum
+
+## F. Thủy trấn cổ
+- Xitang Water Town
+
+## G. Công viên & thiên nhiên
+- West Bund Riverside
+- Chongming Island
+- Binjiang Forest Park
+- Gongqing Forest Park
+
+## I. Địa điểm khác
+- West Bund Art District
+- Moganshan Road murals
+- Hongqiao Tiandi
+
+---
+
+# Hangzhou (bổ sung)
+
+## H. Các điểm nên thêm
+- Quyuan Fenghe (Quy Viên Phong Hà)
+- Three Pools Mirroring the Moon (Tam Đàn Ấn Nguyệt)
+- Jingci Temple
+- National Tea Museum
+- China Silk Museum
+
+### Làng trà
+- Yunqi Zhujing
+- Manjuelong Village
+
+### Hoạt động đặc biệt
+- Impression West Lake Show
